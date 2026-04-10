@@ -1,0 +1,1 @@
+# StrukturData-Q1-2501010070-ANDHIKA-C
